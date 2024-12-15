@@ -22,6 +22,6 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Life Instagram](https://www.instagram.com/diana_s_life2/)
 - [Twitter X](https://x.com/DianaShyriginas)
 - [Boosty](https://boosty.to/dianashurygina)
-- 
+- [Patreon](https://www.patreon.com/c/dianashurygina)
 
 # Inspiring. Motivating. Growing. 🚀
