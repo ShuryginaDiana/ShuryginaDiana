@@ -22,10 +22,13 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [TON Place](https://ton.place/dianashurygina)
 - [YouTube](https://www.youtube.com/@Diana_Shurygina.)
 - [Dzen](https://dzen.ru/dianashurygina)
+- [OK](https://ok.ru/profile/910036457657)
 - [Twitter X](https://x.com/DianaShyriginas)
 - [My Threads](https://www.threads.net/@diana_shlianina.s)
 - [Threads Life](https://www.threads.net/@diana_s_life2)
 - [Boosty](https://boosty.to/dianashurygina)
 - [Patreon](https://www.patreon.com/c/dianashurygina)
+- [Gravatar](https://gravatar.com/dianashuryginas)
+- [Vimeo](https://vimeo.com/dianashuryginas)
 
 ### Inspiring. Motivating. Growing. 🚀
