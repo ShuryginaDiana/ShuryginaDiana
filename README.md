@@ -19,6 +19,7 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [TikTok](https://www.tiktok.com/@shurygina_vlog)
 - [VK Page](https://vk.com/shurygina_vlog)
 - [VK Chat](https://vk.com/dianashuryginavideo)
+- [Teletype](https://teletype.in/@dianashurygina)
 - [TON Place](https://ton.place/dianashurygina)
 - [YouTube](https://www.youtube.com/@Diana_Shurygina.)
 - [Dzen](https://dzen.ru/dianashurygina)
