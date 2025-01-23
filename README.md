@@ -14,6 +14,7 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 👇 Follow my social media to stay connected with my journey:
 - [My Instagram](https://www.instagram.com/diana_shlianina.s/)
 - [Instagram Life](https://www.instagram.com/diana_s_life2/)
+- [GitHub](https://github.com/ShuryginaDiana)
 - [Telegram RU](https://t.me/DianaShuryginas)
 - [Telegram Chat](https://t.me/Di_DianaShurygina)
 - [TikTok](https://www.tiktok.com/@shurygina_vlog)
@@ -31,6 +32,7 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Patreon](https://www.patreon.com/c/dianashurygina)
 - [Gravatar](https://gravatar.com/dianashuryginas)
 - [Vimeo](https://vimeo.com/dianashuryginas)
-- [GitHub](https://coub.com/dianashurygina)
+- [Coub](https://coub.com/dianashurygina)
+- [Pinterest](https://www.pinterest.com/ShuryginaDiana/)
 
 ### Inspiring. Motivating. Growing. 🚀
