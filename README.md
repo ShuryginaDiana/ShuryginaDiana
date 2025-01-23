@@ -31,5 +31,6 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Patreon](https://www.patreon.com/c/dianashurygina)
 - [Gravatar](https://gravatar.com/dianashuryginas)
 - [Vimeo](https://vimeo.com/dianashuryginas)
+- [GitHub](https://coub.com/dianashurygina)
 
 ### Inspiring. Motivating. Growing. 🚀
