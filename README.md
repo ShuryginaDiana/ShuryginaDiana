@@ -40,6 +40,8 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Likee](https://l.likee.video/p/JXUQGq)
 - [Yappy](https://yappy.media/n/dianashurygina)
 - [Nuum](https://nuum.ru/channel/DianaShurygina)
+- [Kick](https://kick.com/shurygina)
+- [VSCO](https://vsco.co/shuryginadiana/gallery)
 
 ### Inspiring. Motivating. Growing. 🚀
 - [Mave](https://shurygina.mave.digital/)
