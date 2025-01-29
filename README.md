@@ -7,8 +7,6 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - Run a blog about fashion, beauty, and personal experiences.
 - Appear on television projects and talk shows.
 
-💡 I’m passionate about the world of fashion and media. I truly enjoy learning and sharing my experience with others. I’m inspired by people who are fearless in pursuing their goals. Want to stay updated? Join me! 🖤
-
 ## 📲 Where to find me?
 
 👇 Follow my social media to stay connected with my journey:
@@ -50,3 +48,6 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [MyBook](https://mybook.ru/author/diana-shurygina/)
 - [Spotify](https://open.spotify.com/show/2AC6vjVR3EewhWoeZSIcyE)
 - [Litres](https://www.litres.ru/author/diana-shurygina/)
+
+💡 I’m passionate about the world of fashion and media. I truly enjoy learning and sharing my experience with others. I’m inspired by people who are fearless in pursuing their goals. Want to stay updated? Join me! 🖤
+
