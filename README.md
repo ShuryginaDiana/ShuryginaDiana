@@ -26,7 +26,7 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [VK Chat](https://vk.com/dianashuryginavideo)
 - [Teletype](https://teletype.in/@dianashurygina)
 - [TON Place](https://ton.place/dianashurygina)
-- [YouTube](https://www.youtube.com/@Diana_Shurygina.)
+- [YouTube](https://www.youtube.com/channel/UC_VsAHBXS2NtvEJ4na_hX9A)
 - [Dzen](https://dzen.ru/dianashurygina)
 - [OK](https://ok.ru/profile/910036457657)
 - [Twitter X](https://x.com/DianaShyriginas)
@@ -39,5 +39,14 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Coub](https://coub.com/dianashurygina)
 - [Pinterest](https://www.pinterest.com/ShuryginaDiana/)
 - [LinkedIn](https://www.linkedin.com/in/dianashurygina/)
+- [Likee](https://l.likee.video/p/JXUQGq)
+- [Yappy](https://yappy.media/n/dianashurygina)
+- [Nuum](https://nuum.ru/channel/DianaShurygina)
 
 ### Inspiring. Motivating. Growing. 🚀
+- [Mave](https://shurygina.mave.digital/)
+- [Yandex Music](https://music.yandex.ru/album/34959560)
+- [Sber Zvuk](https://zvuk.com/podcast/37230825)
+- [MyBook](https://mybook.ru/author/diana-shurygina/)
+- [Spotify](https://open.spotify.com/show/2AC6vjVR3EewhWoeZSIcyE)
+- [Litres](https://www.litres.ru/author/diana-shurygina/)
