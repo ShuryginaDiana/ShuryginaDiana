@@ -43,6 +43,7 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [VSCO](https://vsco.co/shuryginadiana/gallery)
 - [Wish](https://www.wish.ly/shurygina)
 - [DonationAlerts](https://www.donationalerts.com/r/shuriginadiana)
+- [Trovo](https://trovo.live/s/Shurygina)
 
 ### Inspiring. Motivating. Growing. 🚀
 - [Mave](https://shurygina.mave.digital/)
