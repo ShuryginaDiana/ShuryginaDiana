@@ -20,8 +20,7 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Medium](https://dianashurygina.medium.com/)
 - [Reddit](https://www.reddit.com/user/DianaShurygina/)
 - [Tumblr](https://www.tumblr.com/dianashurygina)
-- [VK Page](https://vk.com/shurygina_vlog)
-- [VK Chat](https://vk.com/dianashuryginavideo)
+- [VK](https://vk.com/shurygina_vlog)
 - [Teletype](https://teletype.in/@dianashurygina)
 - [TON Place](https://ton.place/dianashurygina)
 - [YouTube](https://www.youtube.com/channel/UC_VsAHBXS2NtvEJ4na_hX9A)
@@ -42,14 +41,19 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Nuum](https://nuum.ru/channel/DianaShurygina)
 - [Kick](https://kick.com/shurygina)
 - [VSCO](https://vsco.co/shuryginadiana/gallery)
+- [Wish](https://www.wish.ly/shurygina)
+- [DonationAlerts](https://www.donationalerts.com/r/shuriginadiana)
 
 ### Inspiring. Motivating. Growing. 🚀
 - [Mave](https://shurygina.mave.digital/)
+- [Apple Podcasts](https://podcasts.apple.com/us/podcast/на-донышке/id1789924378)
+- [VK Podcasts](https://vk.com/dshurygina_official)
 - [Yandex Music](https://music.yandex.ru/album/34959560)
 - [Sber Zvuk](https://zvuk.com/podcast/37230825)
 - [MyBook](https://mybook.ru/author/diana-shurygina/)
 - [Spotify](https://open.spotify.com/show/2AC6vjVR3EewhWoeZSIcyE)
 - [Litres](https://www.litres.ru/author/diana-shurygina/)
+- [SoundStream](https://soundstream.media/channel/diana-shurygina)
 
 💡 I’m passionate about the world of fashion and media. I truly enjoy learning and sharing my experience with others. I’m inspired by people who are fearless in pursuing their goals. Want to stay updated? Join me! 🖤
 
