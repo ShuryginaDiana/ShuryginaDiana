@@ -44,6 +44,7 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Wish](https://www.wish.ly/shurygina)
 - [DonationAlerts](https://www.donationalerts.com/r/shuriginadiana)
 - [Trovo](https://trovo.live/s/Shurygina)
+- [Rutube](https://rutube.ru/channel/55779378/)
 
 ### Inspiring. Motivating. Growing. 🚀
 - [Mave](https://shurygina.mave.digital/)
