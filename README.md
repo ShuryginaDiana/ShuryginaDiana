@@ -36,7 +36,7 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Coub](https://coub.com/dianashurygina)
 - [Pinterest](https://www.pinterest.com/ShuryginaDiana/)
 - [LinkedIn](https://www.linkedin.com/in/dianashurygina/)
-- [Likee](https://l.likee.video/p/JXUQGq)
+- [Likee](https://l.likee.video/p/aGjcNC)
 - [Yappy](https://yappy.media/n/dianashurygina)
 - [Nuum](https://nuum.ru/channel/DianaShurygina)
 - [Kick](https://kick.com/shurygina)
